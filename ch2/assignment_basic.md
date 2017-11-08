@@ -8,7 +8,7 @@
   >In the dark the old man could feel the morning coming and as he rowed he heard the trembling sound as flying fish left the water and the hissing that their stiff set wings made as they soared away in the darkness. He was very fond of flying fish as they were his principal friends on the ocean. He was sorry for the birds, especially the small delicate dark terns that were always flying and looking and almost never finding.
 
 
-   夜很深，老人晓得黎明就要来了。他划着船，听到一阵颤动，有鱼儿正跃出水面，嘶嘶地扇动着坚硬的翅膀，划过黑夜。他是很喜欢这些飞鱼的，视他们为海上主要的朋友。
-他为那些鸟儿感到遗憾，特别是小巧精致的燕鸥，他们成天飞来飞去，寻寻觅觅，依然一无所获。
+   夜很深，老人晓得黎明就要来了。他划着船，听到一阵颤动，有鱼儿正跃出水面，嘶嘶地扇动着坚硬的翅膀，划过黑夜。他是很喜欢这些飞鱼的，视它们为海上主要的朋友。
+他为那些鸟儿感到遗憾，特别是小巧精致的燕鸥，它们成天飞来飞去，寻寻觅觅，依然一无所获。
 
 
